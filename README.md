@@ -1,1 +1,0 @@
-# O-caminho-para-Beatriz
